@@ -6,4 +6,4 @@
 
 ## ◽ About Me
 
-I've been trying for 6 months.
+I've been trying for 6 months
